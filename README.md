@@ -5,7 +5,7 @@ Here's what you can get from me,
 You can **Get work done in two clicks**
 
 And Save yourself the hassle and regular emotional distress
-by getting tasks automated, and spend time where *IT MATTERS*.
+by getting tasks automated, and live an easier life.
 
 Just send me a [**mail**](mailto:haiz.gigs@gmail.com) (don't forget to tell me about that frustrating task)
 
