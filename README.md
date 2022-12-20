@@ -1,17 +1,11 @@
-Hi, I’m Haiz
+Hey amazing person,
+I’m Haiz,
 
-Here's what you can get from me,
+And here's what you can get from me,
 
-You can **Get work done in two clicks**
+You can **Get your work done in two mouse clicks**
 
-And Save yourself the hassle and regular emotional distress
-by getting tasks automated, and live an easier life.
+And save yourself the hassle and annoyance 
+of those annoying little tasks, that take you hundreds of mouse clicks.
 
-Just send me a [**mail**](mailto:haiz.gigs@gmail.com) (don't forget to tell me about that frustrating task)
-
-Maybe, you are losing hundreds of hours,
-that you could have saved by [**contacting**](mailto:haiz.gigs@gmail.com) me.
-Isn't it just telling someone the work that 
-frustates you to no end. 
-
-My mail: haiz.gigs@gmail.com
+Just send me a [**mail**](mailto:haiz.gigs@gmail.com) (tell me about those annoying little tasks) and relax.
