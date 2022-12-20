@@ -1,4 +1,4 @@
-Hey amazing person,
+Dear Reader,
 I’m Haiz,
 
 And here's what you can get from me,
